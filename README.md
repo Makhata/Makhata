@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Makhata
+- 👀 I’m interested in programming and coding 
+- 🌱 I’m currently learning CSS and later i want to learn JavaScript 
+- 📫 How to reach me: 
+- facebook -  https://www.facebook.com/Makhataa 
+- Gmail - Maxatairl@gmail.com
+- Discord - Makhata#8622
